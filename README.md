@@ -1,0 +1,2 @@
+EJERCICIOS CORTE 2
+REALIZADOS POR: Gustavo Adolfo Villa Sanchez
